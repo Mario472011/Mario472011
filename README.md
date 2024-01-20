@@ -1,2 +1,2 @@
 -  Hi, I’m @Mario472011
--  I am a Roblox indie deva and that's about it
+-  I am a Roblox indie dev and that's about it
